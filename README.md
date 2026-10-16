@@ -1,0 +1,1 @@
+# AI-produkuj-ce-z-oto-1KG-sztabka-z-ota.
